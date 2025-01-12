@@ -242,6 +242,18 @@ Legal II: The movement rate (acceleration) of the object movement is directly pr
 
 Law III: For every force exerted by one object on another, there is an equal and opposite force exerted by the second object on the first.
 
+# Philadelphische Zeitung. SAMSTAG, der 6 May. 1732-(Original):
+
+An alle tentsche Einwohner der Provists Peunfyivanien.
+
+N ACHDEM ich von verfchie- denen teutſchen Einwohnern diefes Landes bin erfüchet worden, eine teutſche Zeitung ausgehen zu laffen, und ihnen darionen das vornchaite und merckwürdigte neues, fo hier und in Europa vorfallen möchte, zu communiciren; doch aber hierzu viele mühe, groffe correfpon- dentz und auch Unkoiten erfordert wer den: Als habe mich entfchloffen, de- nen teutfchen zu lich eb gegenwärtiges Specimen davon heraus zu geben, und
+
+wocne cinmahl, nemlich Sonnabends in gegenwärtiger form einer Zeitung, nebit denen schiffen fo hier abgehen und ankommen, und auch das steigen oder fallen des Preiffes der Guter, und was fonit zu wiffeu dienlieb bekande zo machen.
+
+Advertiffemente oder Bekant ma- chungen, welche man an mich schicken möchte, follen das erste mahl ver 3 thill. 3 mahl aber vor 5 fhil. hinein gefetzet werden.
+
+Und weil ich nutzlich crachte die gantze beſchreibung der aufrichteng diefer provints, mit allen derfelben.
+
 # The Master of Mankind by Aaron Dembski-Bowden, Chapter 3 First Page(Original):
 
 Diocletian Coros stood upon the wall of a fortress that shouldn’t exist,
