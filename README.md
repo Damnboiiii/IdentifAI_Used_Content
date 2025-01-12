@@ -50,6 +50,30 @@ Article 3 – Equality before the law
 
 # German Constitution Art 1 - 4(AI):
 
+Grundgesetz für eine universelle Gemeinschaft
+Präambel
+Im Bewusstsein der gemeinsamen Verantwortung aller Völker für die Würde des Menschen und den Frieden auf der Welt gibt sich die universelle Gemeinschaft diese Verfassung. Ziel ist es, Freiheit, Gerechtigkeit und Solidarität in allen Lebensbereichen zu gewährleisten und die Einheit der Menschheit in Vielfalt zu fördern.
+
+Artikel 1 – Würde des Menschen
+(1) Die Würde jedes Menschen ist unantastbar. Sie zu achten und zu schützen ist oberstes Gebot aller gesellschaftlichen, politischen und staatlichen Institutionen.
+(2) Jeder Mensch hat das Recht, unabhängig von Herkunft, Kultur oder Glauben, ein Leben in Freiheit und Sicherheit zu führen.
+(3) Die universelle Gemeinschaft erkennt die unveräußerlichen Menschenrechte als Grundlage für Frieden und Gerechtigkeit an.
+
+Artikel 2 – Persönliche Freiheit und Entwicklung
+(1) Jeder Mensch hat das Recht auf freie Entfaltung seiner Persönlichkeit, soweit er nicht die Rechte anderer verletzt oder die Gemeinschaft gefährdet.
+(2) Körperliche und geistige Unversehrtheit sind zu schützen. Niemand darf einer unmenschlichen oder entwürdigenden Behandlung unterworfen werden.
+(3) Die Freiheit des Einzelnen darf nur durch ein allgemein gültiges Gesetz eingeschränkt werden, das dem Schutz der Gemeinschaft dient.
+
+Artikel 3 – Gleichheit und Gerechtigkeit
+(1) Alle Menschen sind vor dem Gesetz gleich. Diskriminierung aufgrund von Geschlecht, Alter, Herkunft, Sprache, Religion, politischer Überzeugung oder körperlichen Einschränkungen ist verboten.
+(2) Die Gemeinschaft verpflichtet sich, bestehende Ungleichheiten aktiv zu bekämpfen und die tatsächliche Gleichberechtigung aller Menschen zu fördern.
+(3) Vielfalt wird als Bereicherung anerkannt und geschützt.
+
+Artikel 4 – Freiheit des Denkens und Glaubens
+(1) Die Freiheit des Denkens, des Gewissens und des Glaubens ist unantastbar.
+(2) Jeder Mensch hat das Recht, seine Überzeugungen frei zu wählen, auszuüben oder zu ändern.
+(3) Die Gemeinschaft verpflichtet sich, den Dialog zwischen unterschiedlichen Glaubensrichtungen und Weltanschauungen zu fördern und einen respektvollen Umgang sicherzustellen
+
 # The Road not Taken(Original):
 
 The Road Not Taken
