@@ -254,6 +254,30 @@ Advertiffemente oder Bekant ma- chungen, welche man an mich schicken möchte, fo
 
 Und weil ich nutzlich crachte die gantze beſchreibung der aufrichteng diefer provints, mit allen derfelben.
 
+# Philadelphische Zeitung. SAMSTAG, der 6 May. 1732-(Paraphrase):
+
+The Samsag, May 6, 1732
+
+All of the peunfyivanian provists' tentsche residents.
+
+In the ACHDEM, I was contacted by the Teutſchen residents of the country and asked them to start a Teutſche newspaper. They wanted to share the latest news and information that was happening in Europe and here. However, this led to a lot of misunderstandings, grope responses, and even unkoiten requests. De-nen teutfchen zu lich eb gegenwärtiges Specimen davon zu geben, und sie haben entfchloffen
+
+Wocne cinmahl, nemlich sonnabends in opposite form, nebit denen schiffen for here abgehen and ankommen, as well as the steigen or fall des Preiffes der Guter, and what was able to make the zo fonit bekenlieb. Following the first mahl ver 3 thill, there were advertisements or bekant ma-chungen that a man would want to send to me. Three milliliters, but five fhil. are added.
+
+And because I nutzlich crachte die gantze beſchreibung der onrichten diefer provints, with all consequences.
+
+# Philadelphische Zeitung. SAMSTAG, der 6 May. 1732-(AI):
+
+To all German inhabitants of the Province of Pennsylvania:
+
+Since I have been asked by various German residents of this land to publish a German newspaper, in which I would share the most important and noteworthy news occurring here and in Europe, I have decided to issue this sample edition. However, producing such a newspaper involves much effort, extensive correspondence, and expenses.
+
+Therefore, I have resolved to publish this newspaper weekly—namely, on Saturdays—in its current form. It will include information about ships departing and arriving here, the rising and falling prices of goods, and other matters that may be of interest.
+
+Advertisements or announcements that people wish to send to me can be included for a fee of 3 shillings for one insertion or 5 shillings for three insertions.
+
+Additionally, I find it useful to provide a complete description of the establishment of this province, including all relevant details.
+
 # The Master of Mankind by Aaron Dembski-Bowden, Chapter 3 First Page(Original):
 
 Diocletian Coros stood upon the wall of a fortress that shouldn’t exist,
